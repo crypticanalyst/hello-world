@@ -4,4 +4,6 @@ I haven't studied computer science in college or write code; but I am learning. 
 
 I will find my passion. If I'm successful in the future, I'll turn this into an NFT.
 
-Remember Kaguya, your biggest strengts are discipline and passion. Use them. F30U30.
+Remember Kaguya, your biggest strengts are discipline and passion. Use them. 
+
+F30U30
